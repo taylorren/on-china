@@ -1,2 +1,5 @@
-1. [Introduction](intro.md)
-2. [The Communist Party](ccp.md)
+# Table of contents
+
+* [TOC](README.md)
+* [Introduction](introduction.md)
+* [The Communist Part](ccp.md)
