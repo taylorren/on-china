@@ -1,2 +1,2 @@
-1. [Introduction](Intro.mkd)
-2. [Contents](toc.mkd)
+1. [Introduction](intro.md)
+2. [The Communist Party](ccp.md)
