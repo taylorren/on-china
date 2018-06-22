@@ -1,5 +1,4 @@
 # Table of contents
 
-* [TOC](README.md)
-* [Introduction](introduction.md)
+* [Introduction](README.md)
 * [The Communist Part](ccp.md)
