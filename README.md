@@ -12,7 +12,7 @@ On March 11th, 2018, the "proposed" modification stimulated by CCP was unanimous
 
 This is no surprise.
 
-I am an ordinary man. When I sense something not right, I want to speak out; when I know I don't have a proper place to make my voice heard, I have to choose a platform that is still available. 
+I am an ordinary man. When I sense something not right, I want to speak out; when I know I don't have a proper place to make my voice heard in China, I have to choose a platform that is still available. 
 
 I don't know if I can finish this book, but I will do my best and whenever I have got something in mind, I will come and do some writing, commit them, and push them. 
 
