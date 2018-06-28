@@ -18,13 +18,10 @@ In the early stage, CCP has not gained power enough to allocate social resources
 
 This approach is still widely used today, while the purpose is less on retainting loyalty than on containing deviations.
 
-## 投名状 (tou ming zhuang)
+## 投名状 (Tou Ming Zhuang, Manifestation of Allegiance)
 
-TMZ is a common act when someone tried to join a gang/"illegal group, he/she had to do something to prove that the purpose of his/her request was genuine. Normally, the gang master will ask him to kill one person (so that his hand is blooded); by committing a homocide (or other similar unforgivable crimes), there will be no good for this guy to turn back on the gang later. Thus, loyalty is maintained. 
+TMZ is a common act when someone tried to join a gang/"illegal group", he/she had to do something to prove that the purpose of his/her request was genuine. Normally, the gang master will ask him to kill one person (so that his hand is blooded). By committing a homocide (or other similar unforgivable crimes), there will be no good for this guy to turn back on the gang later. Thus, "loyalty" is proved and maintained. 
 
+But is this to be called loyalty? Or is it just a subjection out of fear and intimidation? I believe so. 
 
-
-
-
- 
-
+My logic goes like this： he has no where to go; 
